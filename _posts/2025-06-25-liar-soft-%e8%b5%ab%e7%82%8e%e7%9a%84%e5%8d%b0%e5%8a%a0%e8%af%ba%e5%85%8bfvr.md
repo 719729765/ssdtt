@@ -1,0 +1,28 @@
+---
+title: "[Liar Soft] 赫炎的印加诺克FVR"
+date: 2025-06-25
+tags: []
+categories: ["PC版"]
+excerpt: "简介 “──有些人梦见的世界。 ──时不时梦见的世界。 ──然而，却如此地充满猥杂、残酷与哀伤。 ──如此耀眼地闪着光芒。” 异形都市インガノック。在这样一个由积层型巨大构造体形成的完全环境都市（arcology）中，10年前发生的《复活》将一切都扭曲了。人类、树木、还有因机关（engine）排烟而&hellip;"
+layout: post
+---
+
+
+<p><img decoding="async"   src="https://ssdtt.gogogal.top/wp-content/uploads/2025/06/20c41-00.webp" loading="lazy" alt="[Liar Soft] 赫炎的印加诺克FVR" style="display: block; margin-left: auto; margin-right: auto; width: 1000px;" /></p>
+<div>
+<h3>简介</h3>
+</p></div>
+<p>“──有些人梦见的世界。 ──时不时梦见的世界。 ──然而，却如此地充满猥杂、残酷与哀伤。 ──如此耀眼地闪着光芒。” 异形都市インガノック。在这样一个由积层型巨大构造体形成的完全环境都市（arcology）中，10年前发生的《复活》将一切都扭曲了。人类、树木、还有因机关（engine）排烟而化为灰色的天空。理应独一无二的太阳，如今已变为两个。 令人畏惧的幻想生物不断出没，就连原本给都市带来富裕的蒸汽机械文明，也发生了变异，不时地化为异形袭击人类。唯一得以幸免变异的，只有贵族们居住的都市上层。インガノック的一小部分。 据称超过100万的人口密集的都市下层，如今正满溢着地上不该存在的异形和奇病，以及发达至异常的暴力般的机械技术。歪曲的天空中生出无限的迷雾，将都市完全地孤立了。 孤立都市，同时也是异形都市的。インガノック。 巡回医师ギー，直至今日依旧奔走在都市中。 他无视了一心要让弱者灭绝的上层贵族所制定的“死之都市法”，来回奔走，诊治救助着下层的人们。 从昨天到今天，再到明天。 眼睁睁看着自己手中逝去的无数生命。 为了确认10年前所丢失的究竟为何物，而持续奔走着。 ──于是，他遇见了。 ──两个人。 一个少女。好似对インガノック的混沌浑然不知的，黑衣的少女。 她的名字叫キーア。脸上总是挂着那被人们遗忘了的“笑容”。 还有一个是影。失去了一切幻想的都市中唯一成为传说的，“童话”中登场的角色。也就是，可变化为万色的钢之人影。 其名为《奇械》。 非人的钢之影。 粉碎异形的刃之手。 给人们带来“美”的，インガノック唯一的希望──</p>
+<h3>预览图</h3>
+<p><img decoding="async"   src="https://ssdtt.gogogal.top/wp-content/uploads/2025/06/815f3-01.webp" loading="lazy" alt="[Liar Soft] 赫炎的印加诺克FVR" style="display: block; margin-left: auto; margin-right: auto; width: 1000px;" /></p>
+<hr />
+<p><img decoding="async"   src="https://ssdtt.gogogal.top/wp-content/uploads/2025/06/c9bca-02.webp" loading="lazy" alt="[Liar Soft] 赫炎的印加诺克FVR" style="display: block; margin-left: auto; margin-right: auto; width: 1000px;" /></p>
+<hr />
+<p><img decoding="async"   src="https://ssdtt.gogogal.top/wp-content/uploads/2025/06/d1939-03.webp" loading="lazy" alt="[Liar Soft] 赫炎的印加诺克FVR" style="display: block; margin-left: auto; margin-right: auto; width: 1000px;" /></p>
+<div> </div>
+<fieldset>
+<legend>
+
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://ssdtt.gogogal.top/galgame/pc/3281/](https://ssdtt.gogogal.top/galgame/pc/3281/)

@@ -1,0 +1,26 @@
+---
+title: "[HAIKUO-SOFT] PriministAr"
+date: 2025-06-25
+tags: []
+categories: ["PC版"]
+excerpt: "简介 时至盛春，一个阳光明媚的午后。侧耳倾听，吹奏乐的音色和运动部的呼喊声传入耳中。粟生七舟学园的新生部员招募会恰巧结束，四处充满活力。不过，在位于学校角落，聚集了文科社团的这栋活动楼，通称“文化部栋”里…… 所有男生聚成一团，做出了了一个愚蠢的提案，“将文化栋里的所有女生穿着死库水义务化”。于是乎&hellip;"
+layout: post
+---
+
+
+<p><img decoding="async"   src="https://ssdtt.gogogal.top/wp-content/uploads/2025/06/b8ff7-00.webp" loading="lazy" alt="[HAIKUO-SOFT] PriministAr" style="display: block; margin-left: auto; margin-right: auto; width: 1000px;" /></p>
+<div>
+<h3>简介</h3>
+</p></div>
+<p>时至盛春，一个阳光明媚的午后。侧耳倾听，吹奏乐的音色和运动部的呼喊声传入耳中。粟生七舟学园的新生部员招募会恰巧结束，四处充满活力。不过，在位于学校角落，聚集了文科社团的这栋活动楼，通称“文化部栋”里…… 所有男生聚成一团，做出了了一个愚蠢的提案，“将文化栋里的所有女生穿着死库水义务化”。于是乎女生强烈反对（看垃圾的眼神）↓男生强制推进计划（暗自高兴）↓所有男生（-1）被赶出了文化栋←现在事情发展到这里 实在是非常残念的下场。 不过所属于仅有两名部员的手工艺部的男主角·天马春近，由于忙于准备新人招募，同时还得奔走于其他社团帮忙，没有赶上男生们的计划，成为了能免于被驱逐出文化栋的唯一男生。他也怀着各种想法，积极的进行着手工艺部的活动。于是，终于迎来了新部员—— “喂，你这也贴得太近了吧？”“哼哼~有什么不好”“……别得寸进尺，好难受”“春————！！近————！！”“姐，姐姐，你老实一点！”“…………”“呵呵……啊，我去泡杯茶吧？” 在这满是少女的文化部栋。稍微变得热闹了一点的手工艺部，今天也发生着欢乐的事件。</p>
+<h3>预览图</h3>
+<p><img decoding="async"   src="https://ssdtt.gogogal.top/wp-content/uploads/2025/06/a308a-01.webp" loading="lazy" alt="[HAIKUO-SOFT] PriministAr" style="display: block; margin-left: auto; margin-right: auto; width: 1000px;" /></p>
+<hr />
+<p><img decoding="async"   src="https://ssdtt.gogogal.top/wp-content/uploads/2025/06/7d725-02.webp" loading="lazy" alt="[HAIKUO-SOFT] PriministAr" style="display: block; margin-left: auto; margin-right: auto; width: 1000px;" /></p>
+<div> </div>
+<fieldset>
+<legend>
+
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://ssdtt.gogogal.top/galgame/pc/3036/](https://ssdtt.gogogal.top/galgame/pc/3036/)
